@@ -16,14 +16,13 @@ https://drive.google.com/uc?export=download&id=1HNpCTafNVP-ldWdg_iuq9nc5MjJsUMS_
 
 Просмотр: https://drive.google.com/file/d/1HNpCTafNVP-ldWdg_iuq9nc5MjJsUMS_/view
 
-### 3. 1_snimok_ekrana.pdf
-**НЕ НАЙДЕН** на Google Drive под этим точным именем.
+### 3. 1_snimok_ekrana.pdf (1.51 МБ) — файл от 14.10.2025
+**Прямая ссылка на скачивание:**  
+https://drive.google.com/uc?export=download&id=1Pwkschq2niuaqsuwCmfIjjZCbdXk0svk
 
-Похожие файлы (если это один из них — скажите):
-- snimok_ekrana_14-10-2025_19311_msign.gov.md.podpisan.pdf
-- snimok_ekrana_14-10-2025_19311_msign.gov.md.podpisan_1_.pdf
-- snimok_ekrana_2025_03_21_v_18.14.40.pdf
-- snimok_ekrana_2024_11_26_v_09.17.57.pdf
+Просмотр: https://drive.google.com/file/d/1Pwkschq2niuaqsuwCmfIjjZCbdXk0svk/view
+
+Оригинальное имя: snimok_ekrana_14-10-2025_19311_msign.gov.md.podpisan.pdf
 
 ## Папка на Google Drive
 https://drive.google.com/drive/folders/1qDJ1hoWX_Q-XGaAsMthD-RFuF8KpxBfx
