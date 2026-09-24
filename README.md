@@ -24,6 +24,14 @@ https://drive.google.com/uc?export=download&id=1Pwkschq2niuaqsuwCmfIjjZCbdXk0svk
 
 Оригинальное имя: snimok_ekrana_14-10-2025_19311_msign.gov.md.podpisan.pdf
 
+### 4. WhiteHouse_We_Have_Received_Your_Message.txt
+Автоматическое подтверждение получения письма от Белого дома (29.11.2025)
+
+**Прямая ссылка на скачивание:**  
+https://drive.google.com/uc?export=download&id=18Xg7FRKYM_P-6_CG7E8Y88fxq30hQ2ML
+
+Просмотр: https://drive.google.com/file/d/18Xg7FRKYM_P-6_CG7E8Y88fxq30hQ2ML/view
+
 ## Папка на Google Drive
 https://drive.google.com/drive/folders/1qDJ1hoWX_Q-XGaAsMthD-RFuF8KpxBfx
 
